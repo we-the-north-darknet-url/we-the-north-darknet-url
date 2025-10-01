@@ -51,4 +51,6 @@ If you’re considering any darknet move in Canada, remember the **we the north 
 [![img](/addons/start.webp)](http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion)
 
 
-Update:  Thursday 18 September 2025
+
+
+Update:  01.10.2025
